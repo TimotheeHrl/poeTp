@@ -8,14 +8,6 @@ Entrées
 ◆ Pressé de poulet au safran de la Limagne, foie gras, brocolis et cédrat * 14€
 ◆ Langoustines pochées au combava, raviole de petits pois aux herbes et ricotta* 14€
 
-Plats
-◆ Saucisse de veau de Lozère maison aux girolles, fregola sarda, 19€
-petit pois, Cantal
-◆ Poisson du marché, crumble de fenouil, espuma de tomates caramélisées 19€
-◆ Onglet de bœuf Black Angus, piquillos farcis, pommes de terre éventail, 23€
-sauce poivre et groseille *
-◆ Pavé de thon blanc, aubergine en caviar et grillée, sauce cerise et soja * 23€
-
 Desserts
 ◆ Mille-feuille croustillant, caramel beurre salé, duo de crème et glace vanille 9€
 ◆ Rhubarbe pochée, cerises fraîches, bouillon de bissap, biscuit cuillère et 10€

@@ -16,4 +16,13 @@ sorbet cerise *
 sorbet pêche de vigne *
 ◆ Sélection de fromage du Buron et ses accompagnements 11€
 * disponible uniquement le soir et le samedi midi
+Plats
+◆ Saucisse de veau de Lozère maison aux girolles, fregola sarda, 19€
+petit pois, Cantal
+◆ Poisson du marché, crumble de fenouil, espuma de tomates caramélisées 19€
+◆ Onglet de bœuf Black Angus, piquillos farcis, pommes de terre éventail, 23€
+sauce poivre et groseille *
+◆ Pavé de thon blanc, aubergine en caviar et grillée, sauce cerise et soja * 23€
+
+
 

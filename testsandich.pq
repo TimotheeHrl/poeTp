@@ -16,12 +16,5 @@ petit pois, Cantal
 sauce poivre et groseille *
 ◆ Pavé de thon blanc, aubergine en caviar et grillée, sauce cerise et soja * 23€
 
-Desserts
-◆ Mille-feuille croustillant, caramel beurre salé, duo de crème et glace vanille 9€
-◆ Rhubarbe pochée, cerises fraîches, bouillon de bissap, biscuit cuillère et 10€
-sorbet cerise *
-◆ Baba à la vodka et aux pêches, ganache fleur d’oranger, amandes torréfiées et 10€
-sorbet pêche de vigne *
-◆ Sélection de fromage du Buron et ses accompagnements 11€
-* disponible uniquement le soir et le samedi midi
+
 
